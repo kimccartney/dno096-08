@@ -1,1 +1,11 @@
 # dno096-08
+![Foto 10](https://github.com/user-attachments/assets/f690a4d3-fcc2-4f29-90a2-dbfcc9f0bfb8)
+![Foto 9](https://github.com/user-attachments/assets/37b65537-d782-4c7e-bd42-7a7b758c9d4f)
+![Foto 8](https://github.com/user-attachments/assets/cba4b50e-5c50-4485-9050-5ff0b6df6bed)
+![Foto 7](https://github.com/user-attachments/assets/1eaa6248-7f97-4e12-a4d9-b53980487250)
+![Foto 6](https://github.com/user-attachments/assets/2727668c-d4e4-418d-91e5-dfffd05560c7)
+![Foto 5](https://github.com/user-attachments/assets/a95f1c54-4858-4728-ae23-59524ede389d)
+![Foto 4](https://github.com/user-attachments/assets/2bf9ea28-6923-4b76-bc16-34aa6c0dd7b3)
+![Foto 3](https://github.com/user-attachments/assets/01e7c5ba-c492-4f0a-9727-23f1931aee0c)
+![Foto 2](https://github.com/user-attachments/assets/c0123f6e-8682-4589-89b8-cf371395d9a7)
+![Foto 1](https://github.com/user-attachments/assets/1ed5f0e8-d956-4865-9e9c-a9348c73d821)
